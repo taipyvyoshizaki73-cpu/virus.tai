@@ -1,2 +1,1 @@
-# virus.tai
-omar
+_note_ i do not relate to any problem its your choice 
